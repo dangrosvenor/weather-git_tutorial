@@ -1,3 +1,3 @@
 # Forecast
 ## Today
-Rainbows followed by light showers.
+Rainbows followed by glitter showers.
